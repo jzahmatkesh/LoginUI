@@ -10,6 +10,8 @@ if you have a question ask in my youtube channel:
 
 ![Preview](images/preview2.png)
 
+![Preview](images/preview3.png)
+
 
 [find me here ](http://zahmatkesh.dev), to hire :sunglasses:,
 [my youtube channel ](http://youtube.com/c/codewitharman), to hire :sunglasses:,
